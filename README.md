@@ -61,4 +61,4 @@ As an Applied & Computational Mathematics student interested in healthcare analy
 Applied & Computational Mathematics
 Bowie State University
 
-[LinkedIn](https://linkedin.com/in/torhira-aminu)
+[LinkedIn](https://www.linkedin.com/in/torhira-aminu)
